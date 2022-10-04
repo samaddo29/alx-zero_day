@@ -1,1 +1,2 @@
-My first readme
+God is good all the time
+Alx is the best school
